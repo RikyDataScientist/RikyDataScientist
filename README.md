@@ -38,7 +38,7 @@ I enjoy exploring data, discovering patterns, and building solutions through pro
 
 ### Connect With Me
 
-[LinkedIn](https://www.linkedin.com/in/farisrp) · [Instagram](https://www.instagram.com/farisriky.p/)
+[LinkedIn](https://www.linkedin.com/in/farisrp) · [Instagram](https://www.instagram.com/faris.dataverse/)
 
 ---
 
